@@ -38,4 +38,6 @@ O chyom konyuh govoril
 Oni ne ponimali
 
 Previous lesson: stolbitsa.com/fistachka/elimyaso<br><br>
+![з5](https://github.com/user-attachments/assets/0f102fb0-2459-43d7-8beb-70479f2d2e7f)
+![з6](https://github.com/user-attachments/assets/60d86524-8b9a-45f0-ab6b-5cea93b69c33)
 
