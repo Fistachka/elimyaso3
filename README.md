@@ -4,7 +4,7 @@
 ![з6](https://github.com/user-attachments/assets/60d86524-8b9a-45f0-ab6b-5cea93b69c33)
 
 
-<iframe width="315" height="560" src="https://www.youtube.com/embed/WHS43c0k3Mc" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share"allowfullscreen></iframe>
+<iframe width="315" height="560" src="https://www.youtube.com/embed/ZkoRYlEuhTk" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share"allowfullscreen></iframe>
 <iframe width="560" height="315" src="https://www.youtube.com/embed/K77W1KLLbak" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share"allowfullscreen></iframe>
 
 "Я за ней не уследил
@@ -27,7 +27,7 @@
 "The Lads Ate Meat" («Eli myaso muzhiki» - Korol' i SHut 1999)
 ![з6](https://github.com/user-attachments/assets/60d86524-8b9a-45f0-ab6b-5cea93b69c33)
 
-<iframe width="315" height="560" src="https://www.youtube.com/embed/ieWOxAAQS80" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share"allowfullscreen></iframe>
+<iframe width="315" height="560" src="https://www.youtube.com/embed/SytorQDtZQo" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share"allowfullscreen></iframe>
 <iframe width="560" height="315" src="https://www.youtube.com/embed/U0Q4V2NwZ5c" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share"allowfullscreen></iframe>
 
 "YA za nej ne usledil
